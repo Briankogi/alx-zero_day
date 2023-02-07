@@ -1,1 +1,1 @@
-You are the man
+You are the champ
